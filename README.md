@@ -1,1 +1,1 @@
-See LIVE https://wisniewskapaulina.github.io/jewelleryShop/
+LIVE https://wisniewskapaulina.github.io/jewelleryShop/
